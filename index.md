@@ -2,7 +2,7 @@
 
 ### Support or Contact
 
-Having trouble with Pages? Please contact us with Info:
+Having trouble with Apps? Please contact us with Info:
 
 Name: Nguyen Minh Vuong
 
